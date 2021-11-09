@@ -1,2 +1,2 @@
 # Anotacoes_sem_descricao_Completa
-anotações sem descrição 
+anotações sem descrição completa
